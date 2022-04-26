@@ -6,6 +6,7 @@
 ###### If, by any chance, anybody is meaning to contact me, here are my socials:
 ```
 Instagram: https://www.instagram.com/konstei_78/
+Discord: Konstei#8610
 ```
 
 
